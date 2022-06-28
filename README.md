@@ -1,0 +1,1 @@
+This is a collaboration website between two classes, namely IX SYDNEY AND IX BERLIN
